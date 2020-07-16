@@ -1,2 +1,0 @@
-# Virtual-Consultation-
-Ismile Technologies
